@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning SEO.
 - 📫 How to reach me ibrahimkhaan099@gmail.com
 - 😄 Pronouns: HE/Him
-- ⚡ Fun fact: Life s fun if you have money.
+- ⚡ Fun fact: Life s fun if you have money. But i dont have.
 
 <!---
 Ibrahim-Khaan/Ibrahim-Khaan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
